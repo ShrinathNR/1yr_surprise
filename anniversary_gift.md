@@ -29,7 +29,7 @@ and I am responsible for
 most of the ripples  
 every time we commit something bigger  
 doubts and questions  
-has always showed  
+have always showed  
 care and respect  
 wonder how i got from   
 getting to know you to  
